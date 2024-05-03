@@ -1,4 +1,2 @@
-Hello, Im The Owner and Developer Of "Project Moral"
-Will Post Random Things On Here
-
+owner of moral
 discord.gg/moralfn
